@@ -1,0 +1,1 @@
+ Red velvet cake is traditionally a beautiful red colored  chocolate cake, layered with ermine icing.
